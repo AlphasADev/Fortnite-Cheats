@@ -4,7 +4,7 @@ Undetected Fortnite Hack
 We are looking for cheat developers and advertisers
 
 
-https://discord.gg/fgUK6wYaAP
+https://alphasaccounts.mysellix.io/
 
 Contact at |
            v
